@@ -21,12 +21,9 @@ lærings skyld og lagt op under Læring af koding og til eksempelvis brug.
 ------ FREMVISNING SE SKRIPT ------
 
 
-
-
-
-https://ibb.co/QCc3LFr
-https://ibb.co/tmhdPSx
-https://ibb.co/8BnJFnQ
-https://ibb.co/KG8W77D
-https://ibb.co/M6XvTXr
-https://ibb.co/L6ygc20
+1. https://ibb.co/QCc3LFr
+2. https://ibb.co/tmhdPSx
+3. https://ibb.co/8BnJFnQ
+4. https://ibb.co/KG8W77D
+5. https://ibb.co/M6XvTXr
+6. https://ibb.co/L6ygc20

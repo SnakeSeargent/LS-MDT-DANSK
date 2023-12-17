@@ -19,6 +19,11 @@ lærings skyld og lagt op under Læring af koding og til eksempelvis brug.
 
 
 ------ FREMVISNING SE SKRIPT ------
+
+
+
+
+
 https://ibb.co/QCc3LFr
 https://ibb.co/tmhdPSx
 https://ibb.co/8BnJFnQ

@@ -15,3 +15,13 @@ Eksempel på hvordan de kan laves, angående farver, bøder, og fængselstraf so
 Jeg ejer ikke skriptet jeg har bare oversat det, og lagt det op. Jeg yder ikke support på det længere og jeg hjælper ikke med dette ejeren af skriptet fjernet
 det for en del siden, og det er helt okay og ligge det op, har Den tidligere udgiver selv fortalt, og ellers fralægger jeg mig alt ansvar eftersom dette har været få
 lærings skyld og lagt op under Læring af koding og til eksempelvis brug.
+
+
+
+------ FREMVISNING SE SKRIPT ------
+https://ibb.co/QCc3LFr
+https://ibb.co/tmhdPSx
+https://ibb.co/8BnJFnQ
+https://ibb.co/KG8W77D
+https://ibb.co/M6XvTXr
+https://ibb.co/L6ygc20
